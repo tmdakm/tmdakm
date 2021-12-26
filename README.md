@@ -1,0 +1,3 @@
+I am tmdakm
+like coding\gaming...
+and I am xxs's enemy
